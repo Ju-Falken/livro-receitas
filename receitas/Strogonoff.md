@@ -7,9 +7,8 @@ _italico_
 ### Ingredientes
 
 - 500g de peito de frango sem osso e sem pele
-
+- Creme de leite
 - 1/2 cebola
-
 - 3 dentes de alho 
 
 - Suco de 1 limão
