@@ -7,7 +7,7 @@ _italico_
 ### Ingredientes
 
 - 500g de peito de frango sem osso e sem pele
-
+- Creme de leite
 
 
 ### Modo de Preparo
